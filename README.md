@@ -1,2 +1,4 @@
 # project2
-the first try
+My ID: luxinyayaya
+
+My School: Shandong University 
